@@ -1,0 +1,2 @@
+# premium-tapestry-w-001-tapestry-weaving-cartoon-and-c
+Tired of losing track of that perfect shade blend or forgetting how you achieved it? Your tapestry cartoons deserve a systematic record—not scattered notes on scraps of yarn.  This Notion template is the first dedicated log for both your cartoon design process and color blending experiments. It combines visual reference with precise blend notes, so
